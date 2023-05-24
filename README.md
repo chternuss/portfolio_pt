@@ -12,7 +12,7 @@
 
 ## Feito por:
 
-### Joana Santos
+### Christian Pies Ternus
 
 ### Linkedin: www.linkedin.com/in/christian-pies-ternus
 
